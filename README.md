@@ -2,6 +2,11 @@
 
 # 🎯 4-Week Personal Growth Challenge 🚀
 
+this has been an absolute failure 
+everything is shitty 
+no point of all this 
+didnt do shit 
+
 ## 📅 Start Date: **April 21st, 2025** (my 19th birthday!)  
 ### 🧠 Goal: To level up in tech, habits, and mindset before turning 20 — let's build, learn, and glow up 🚀
 
